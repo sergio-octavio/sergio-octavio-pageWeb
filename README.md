@@ -1,5 +1,5 @@
 # sergio-octavio.github.io
 
-# WEB DE SERGIO OCTAVIO  MANCEBO
-# @sergio.octavio
+# WEB SERGIO OCTAVIO  MANCEBO
+# Instagram @sergio.octavio
 
